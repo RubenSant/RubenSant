@@ -7,7 +7,7 @@
 >Send me a message **NOW**!
 
 >[!IMPORTANT]
->📫 You can contact me via email, at updatemailota@gmail.com
+>📫 You can contact me via email, at updatemailota@gmail.com or rubsanpel@alu.edu.gva.es
 >📷You can follow me in my Instagram @santacata_pelli too
 
 >[!WARNING]
